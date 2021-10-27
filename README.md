@@ -1,0 +1,2 @@
+# The-way-to-fix-a-broken-chair
+Office Furniture, through it’s been known to travel to fabulous far off places, Yamasoro still insists on the “same product, same standard, same specification” for every product. As a brand founder with rich experience who focus on the production of office furniture, Steven would like to believe the essence of personalization comes from the inspiration of design, but the core of a high-end brand needs to concentrate stable supply chains and strict quality management for each part.
